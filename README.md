@@ -1,6 +1,8 @@
 👋 Hi, I’m Anamari Romih 👋
 
-I am interested in video games and design. Love to make pixel art and draw random things but most of it I love when something is aesthetically pleasing. 
+I work as a UX/UI designer.
+I am interested in design and video games. Love to make pixel art and draw random things but most of it I love when something is aesthetically pleasing. 
+
 
 Here is my CV: https://drive.google.com/file/d/1dfs6uDqARCUAe0nfyfrHfkmLR7_QAhM6/view?usp=sharing
 <!---
